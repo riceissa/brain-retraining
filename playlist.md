@@ -14,6 +14,7 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 
 - [How the \[Gupta\] Program Works](https://youtu.be/ynXi63OsCuk?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [Attitudes For Success](https://youtu.be/TTLRuVSzQ7M?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
+- [How Long Does It Take To Recover?](https://youtu.be/vhdmBwde0y0)
 
 # Part 2: Theory: Understanding what is going on in these chronic conditions
 
