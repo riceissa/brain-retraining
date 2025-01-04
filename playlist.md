@@ -37,6 +37,7 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [How to Talk to Your Brain to End Your Pain (and other symptoms)](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [Recovery From Fear](https://youtu.be/VSmTe8zPXh0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [What you resist persists; engaging vs ignoring/distracting](https://youtu.be/ZJy76FDM6PU)
 - [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
 - [Allow and engage session #1](https://youtu.be/Yt2pA1zG9Rc)
@@ -50,6 +51,7 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [Whether you get an adjustment period or crash depends on how you respond to the symptoms; you need to experience symptoms and go through adjustment periods in order to get better; progress cycles](https://youtu.be/I6HE8WtI2Z4?list=PLJT8-UVmfsmL_wtXcgq9z1iUtVoYVM-Rq)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
+- [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 
 ## Miscellaneous
 
