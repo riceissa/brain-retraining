@@ -6,9 +6,9 @@ date: 2025-01-03
 
 The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from different presenters.
 
-This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended as a jumping-off point into the world of brain retraining and other mind body approaches.
+This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended as a jumping-off point into the world of brain retraining and other mind body approaches, rather than an exhaustive list that has all that you need.
 
-In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "here's the #1 thing you are missing in your recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
+In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
 
 # Part 1: Preliminaries/setting context
 
@@ -27,16 +27,16 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 
 # Part 3: Practice: What you need to do to actually get better
 
+- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The RIGHT Way: calm, collected, clarity (not fear, panic, worry, freaking out)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
+- [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [How to Talk to Your Brain to End Your Pain (and other symptoms)](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [Difference Between an Adjustment Period and a Crash](https://youtu.be/Dhjm6_lknNM?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [Progress cycles; micro vs macro; look at your progress month to month, rather than day to day or week to week](https://youtu.be/ScbQEqIhNNU?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The Recovery equation: Recovery = Mindset (i.e. responding well to symptoms) + Structure (i.e. pushing yourself the right amount)](https://youtu.be/YtTvQthX0C4)
-- [Dealing With Symptoms The RIGHT Way](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4) (TODO: rewatch and fix title)
-- [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
-- [How to Talk to Your Brain to End Your Pain](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Whether you get an adjustment period or crash depends on how you respond to the symptoms; you need to experience symptoms and go through adjustment periods in order to get better; progress cycles](https://youtu.be/I6HE8WtI2Z4?list=PLJT8-UVmfsmL_wtXcgq9z1iUtVoYVM-Rq)
-- [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [Learn to rest like a cat or dog](https://youtu.be/FPFg4qiVmuo)
 - ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
 - [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have)
-- [The mindshift](https://youtu.be/WE2RWv2DAqY)
