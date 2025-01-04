@@ -29,9 +29,13 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 # Part 3: Practice: What you need to do to actually get better
 
 - [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The RIGHT Way: calm, collected, clarity (not fear, panic, worry, freaking out)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
+- [The golden rule in recovery is your response to the symptoms; what does it mean to respond well to symptoms?](https://www.youtube.com/watch?v=dIHaLeWYmOI)
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [How to Talk to Your Brain to End Your Pain (and other symptoms)](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [What you resist persists](https://youtu.be/ZJy76FDM6PU)
+- [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
+- [Allow and engage session #1](https://youtu.be/Yt2pA1zG9Rc)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [Difference Between an Adjustment Period and a Crash](https://youtu.be/Dhjm6_lknNM?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [Progress cycles; micro vs macro; look at your progress month to month, rather than day to day or week to week](https://youtu.be/ScbQEqIhNNU?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
@@ -40,4 +44,8 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [Learn to rest like a cat or dog](https://youtu.be/FPFg4qiVmuo)
 - ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
+- [What is your kryptonite?](https://www.youtube.com/watch?v=RlVgD9hgwPY&list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have)
+
+# Part 4: Recovery stories
+
