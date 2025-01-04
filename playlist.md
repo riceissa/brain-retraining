@@ -4,9 +4,9 @@ author: Issa Rice
 date: 2025-01-03
 ---
 
-The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from different presenters.
+The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from each presenter.
 
-This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended as a jumping-off point into the world of brain retraining and other mind body approaches, rather than an exhaustive list that has all that you need.
+This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended more as a jumping-off point into the world of brain retraining and other mind body approaches, rather than an exhaustive list that has all that you need.
 
 In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
 
