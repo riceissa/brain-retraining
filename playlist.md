@@ -1,7 +1,7 @@
 ---
 title: 'How to do brain retraining/brain rewiring/mindbody approach for free: a curated playlist'
 author: Issa Rice
-date: 2025-01-03
+date: 2025-01-04
 ---
 
 The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from each presenter.
@@ -17,6 +17,7 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [How the \[Gupta\] Program Works](https://youtu.be/ynXi63OsCuk?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [Attitudes For Success](https://youtu.be/TTLRuVSzQ7M?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [How Long Does It Take To Recover? Commit for 6 months no matter what](https://youtu.be/vhdmBwde0y0)
+- [You're Not Some Special Kind of Broken](https://youtu.be/ICnw4Kq7dBA)
 
 # Part 2: Theory: Understanding what is going on in these chronic conditions
 
@@ -42,6 +43,7 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
 - [Allow and engage session #1](https://youtu.be/Yt2pA1zG9Rc)
 - ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
+- [The Two Arrows: Pain & Suffering](https://youtu.be/i8YwvnUM9WE)
 
 ## Adjustment periods and progress cycles
 
