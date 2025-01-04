@@ -30,6 +30,8 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 
 # Part 3: Practice: What you need to do to actually get better
 
+## Main practice: respond well to symptoms
+
 - [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The RIGHT Way: calm, collected, clarity (not fear, panic, worry, freaking out)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The golden rule in recovery is your response to the symptoms; what does it mean to respond well to symptoms?](https://www.youtube.com/watch?v=dIHaLeWYmOI)
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
@@ -38,18 +40,25 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [What you resist persists; engaging vs ignoring/distracting](https://youtu.be/ZJy76FDM6PU)
 - [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
 - [Allow and engage session #1](https://youtu.be/Yt2pA1zG9Rc)
-- [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
+- ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
+
+## Adjustment periods and progress cycles
+
 - [Difference Between an Adjustment Period and a Crash](https://youtu.be/Dhjm6_lknNM?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [Progress cycles; micro vs macro; look at your progress month to month, rather than day to day or week to week](https://youtu.be/ScbQEqIhNNU?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The Recovery equation: Recovery = Mindset (i.e. responding well to symptoms) + Structure (i.e. pushing yourself the right amount)](https://youtu.be/YtTvQthX0C4)
 - [Whether you get an adjustment period or crash depends on how you respond to the symptoms; you need to experience symptoms and go through adjustment periods in order to get better; progress cycles](https://youtu.be/I6HE8WtI2Z4?list=PLJT8-UVmfsmL_wtXcgq9z1iUtVoYVM-Rq)
+- [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
+
+## Miscellaneous
+
 - [Learn to rest like a cat or dog](https://youtu.be/FPFg4qiVmuo)
-- ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
 - [What is your kryptonite?](https://www.youtube.com/watch?v=RlVgD9hgwPY&list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [How to Deal With Extreme Boredom](https://youtu.be/w78ZUJEkl5I)
 - [Boredom During Recovery Can Be a Great Sign](https://youtu.be/kqJ8xUjKasM)
 - [Accepting boredom is a necessary step to recovery](https://youtu.be/gFssmz-cNqQ)
+- [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U)
 - [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have)
 
 # Part 4: Recovery stories
