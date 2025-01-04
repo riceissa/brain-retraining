@@ -10,11 +10,13 @@ This playlist contains the most important insights that _I_ needed to get on the
 
 In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
 
+Watch all the videos on this playlist and once you are done, rewatch them all again. I can't emphasize enough how important it is to just keep watching these videos over and over again. It takes time for your brain to really grok recovery. Eventually your brain _will_ get it.
+
 # Part 1: Preliminaries/setting context
 
 - [How the \[Gupta\] Program Works](https://youtu.be/ynXi63OsCuk?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [Attitudes For Success](https://youtu.be/TTLRuVSzQ7M?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
-- [How Long Does It Take To Recover?](https://youtu.be/vhdmBwde0y0)
+- [How Long Does It Take To Recover? Commit for 6 months no matter what](https://youtu.be/vhdmBwde0y0)
 
 # Part 2: Theory: Understanding what is going on in these chronic conditions
 
