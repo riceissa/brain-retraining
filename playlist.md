@@ -33,7 +33,7 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [How to Talk to Your Brain to End Your Pain (and other symptoms)](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
-- [What you resist persists](https://youtu.be/ZJy76FDM6PU)
+- [What you resist persists; engaging vs ignoring/distracting](https://youtu.be/ZJy76FDM6PU)
 - [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
 - [Allow and engage session #1](https://youtu.be/Yt2pA1zG9Rc)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
@@ -45,7 +45,13 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 - [Learn to rest like a cat or dog](https://youtu.be/FPFg4qiVmuo)
 - ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
 - [What is your kryptonite?](https://www.youtube.com/watch?v=RlVgD9hgwPY&list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
+- [How to Deal With Extreme Boredom](https://youtu.be/w78ZUJEkl5I)
+- [Boredom During Recovery Can Be a Great Sign](https://youtu.be/kqJ8xUjKasM)
+- [Accepting boredom is a necessary step to recovery](https://youtu.be/gFssmz-cNqQ)
 - [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have)
 
 # Part 4: Recovery stories
 
+- [Helmut Koeckritz](https://youtu.be/PMAREOy5wLo)
+- [Danny Tiscareno](https://youtu.be/vNqeeiqRSZw)
+- [Matt Butler](https://youtu.be/voONVxSx84s)
