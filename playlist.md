@@ -10,7 +10,7 @@ This playlist contains the most important insights that _I_ needed to get on the
 
 In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
 
-Watch all the videos on this playlist and once you are done, rewatch them all again. I can't emphasize enough how important it is to just keep watching these videos over and over again. It takes time for your brain to really grok recovery. Eventually your brain _will_ get it.
+I recommend watching about 1–3 videos per day. Watch all the videos on this playlist and once you are done, rewatch them all again. I can't emphasize enough how important it is to just keep watching these videos over and over again. It takes time for your brain to really grok recovery. Eventually your brain _will_ get it.
 
 # Part 1: Preliminaries/setting context
 
@@ -38,6 +38,7 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [How to Talk to Your Brain to End Your Pain (and other symptoms)](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [Consistent messages of safety; no need to overcomplicate recovery](https://youtu.be/kjGQeGNALgg?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Recovery From Fear](https://youtu.be/VSmTe8zPXh0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [What you resist persists; engaging vs ignoring/distracting](https://youtu.be/ZJy76FDM6PU)
 - [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
@@ -54,6 +55,7 @@ Watch all the videos on this playlist and once you are done, rewatch them all ag
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [HOW MUCH Knowledge is Needed For Recovery; recovery is surprisingly simple: respond well to symptoms, push the right amount and then pull back during adjustment periods, progress cycles (repeat over and over)](https://youtu.be/ZQjOv7nRG8c)
 
 ## Miscellaneous
 
