@@ -12,6 +12,10 @@ In cases where the video titles seemed uninformative or clickbaity (e.g. stuff l
 
 I recommend watching about 1–3 videos per day. Watch all the videos on this playlist and once you are done, rewatch them all again. I can't emphasize enough how important it is to just keep watching these videos over and over again. It takes time for your brain to really grok recovery. Eventually your brain _will_ get it.
 
+As the Gupta Program says, I highly recommend making a 6 month commitment to brain retraining, because it can take quite some time for you to understand what brain retraining is and for the benefits to show up. If you don't commit to it, you may end up dismissing it before you've truly understood it or before it has had time to work. If 6 months sounds like a lot of time and you would rather focus on other treatment approaches first, I would say go try the other treatments first, and only come back to brain retraining once you are ready to commit to it for 6 months. By the time I came to brain retraining, I was ill for 5 years, had tried a bunch of other unsuccessful treatments, my doctors had no other treatment options available for me, and I was too ill to go into a doctor's office or do telehealth visits anyway, so 6 months of sitting at home and watching videos and doing techniques did not seem like a big commitment to me.
+
+One other advice: In some of the videos, the science of the brain is probably wrong, possibly in major misleading ways. The mechanistic explanations might be off. But that doesn't mean the techniques don't work. You don't need to be an expert in neuroscience, immunology, or whatever in order to recover, and the people presenting this information don't need to be experts either in order to teach you how to recover. So my advice is to treat brain retraining more like an advanced art that has been practiced by various people, that science still doesn't quite understand (but will eventually!).
+
 # Part 1: Preliminaries/setting context
 
 - [How the \[Gupta\] Program Works](https://youtu.be/ynXi63OsCuk?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
@@ -28,6 +32,7 @@ I recommend watching about 1–3 videos per day. Watch all the videos on this pl
 - [Gupta's figure 8 cycle](https://www.positivehealth.com/article/cfs-me-long-covid/me-chronic-fatigue-syndrome-causes-and-the-amygdala-retraining-recovery-programme) (article). This one is an article, rather than a video, because the video where Gupta explains this is only accessible to premium members.
 - [How To Recover From CFS/POTS/FIBROMYALGIA SYMPTOMS - The Science Behind My Recovery](https://youtu.be/yLHknsw28OY)
 - [What Started Symptoms May Be Very Different From What Keeps Them Going](https://youtu.be/jNUAFsKbO3c)
+- [Introduction to Dan Buglio's approach to chronic illness recovery](https://youtu.be/Y8zxgdd1byM)
 
 # Part 3: Practice: What you need to do to actually get better
 
@@ -52,6 +57,7 @@ I recommend watching about 1–3 videos per day. Watch all the videos on this pl
 - [Progress cycles; micro vs macro; look at your progress month to month, rather than day to day or week to week](https://youtu.be/ScbQEqIhNNU?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The Recovery equation: Recovery = Mindset (i.e. responding well to symptoms) + Structure (i.e. pushing yourself the right amount)](https://youtu.be/YtTvQthX0C4)
 - [Whether you get an adjustment period or crash depends on how you respond to the symptoms; you need to experience symptoms and go through adjustment periods in order to get better; progress cycles](https://youtu.be/I6HE8WtI2Z4?list=PLJT8-UVmfsmL_wtXcgq9z1iUtVoYVM-Rq)
+- [How to deal with symptoms and what to do during adjustment periods; the 3/10 rule for when to pull back on activity](https://youtu.be/V95bVeCjVuI)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
