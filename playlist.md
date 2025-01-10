@@ -4,7 +4,7 @@ author: Issa Rice
 date: 2025-01-10
 ---
 
-The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from each presenter.
+The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from each presenter. You don't need to join a program or pay huge sums of money to recover.
 
 This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended more as a jumping-off point into the world of brain retraining and other mind body approaches, rather than an exhaustive list that has all that you need.
 
@@ -18,7 +18,7 @@ I recommend watching about 1–3 videos per day. Watch all the videos on this pl
 
 As the Gupta Program says, I highly recommend making a 6 month commitment to brain retraining, because it can take quite some time for you to understand what brain retraining is and for the benefits to show up. If you don't commit to it, you may end up dismissing it before you've truly understood it or before it has had time to work. If 6 months sounds like a lot of time and you would rather focus on other treatment approaches first, I would say go try the other treatments first, and only come back to brain retraining once you are ready to commit to it for 6 months. By the time I came to brain retraining, I was ill for 5 years, had tried a bunch of other unsuccessful treatments, my doctors had no other treatment options available for me, and I was too ill to go into a doctor's office or do telehealth visits anyway, so 6 months of sitting at home and watching videos and doing techniques did not seem like a big commitment to me.
 
-One other advice: In some of the videos, the science of the brain is probably wrong, possibly in major misleading ways. The mechanistic explanations might be off. But that doesn't mean the techniques don't work. You don't need to be an expert in neuroscience, immunology, or whatever in order to recover, and the people presenting this information don't need to be experts either in order to teach you how to recover. So my advice is to treat brain retraining more like an advanced art that has been practiced by various people, that science still doesn't quite understand (but will eventually!).
+One other advice: In some of the videos, the science of the brain is probably wrong, possibly in major misleading ways. The mechanistic explanations might be off. But that doesn't mean the techniques don't work. You don't need to be an expert in neuroscience, immunology, or whatever in order to recover, and the people presenting this information don't need to be experts either in order to teach you how to recover. So my advice is to treat brain retraining more like an advanced art that has been stumbled onto and practiced and refined by various people, that science still doesn't quite understand (but will eventually!).
 
 # Part 1: Preliminaries/setting context
 
@@ -62,7 +62,7 @@ One other advice: In some of the videos, the science of the brain is probably wr
 - [The Recovery equation: Recovery = Mindset (i.e. responding well to symptoms) + Structure (i.e. pushing yourself the right amount)](https://youtu.be/YtTvQthX0C4)
 - [Whether you get an adjustment period or crash depends on how you respond to the symptoms; you need to experience symptoms and go through adjustment periods in order to get better; progress cycles](https://youtu.be/I6HE8WtI2Z4?list=PLJT8-UVmfsmL_wtXcgq9z1iUtVoYVM-Rq)
 - [How to deal with symptoms and what to do during adjustment periods; the 3/10 rule for when to pull back from activity](https://youtu.be/V95bVeCjVuI)
-- [Stages of recovery; once you find your baseline by having the right mindset and calm down your system so you're not on adrenaline/panic all the time, your fatigue can _increase_, and that's part of the process; finding your true symptom baseline; refinement of the 3/10 rule for when to pull back from activity (the +3/10 rule, e.g. 5/10 → 8/10); capacity increases and adjustment period duration decreases before symptom severity decreases](https://youtu.be/pdhgSBaIc-E?t=42m55s) (start at 42:55 and watch until 59:15)
+- [Stages of recovery; once you find your baseline by having the right mindset and calming down your system so you're not on adrenaline/panic all the time, your fatigue can _increase_, and that's part of the process; finding your true symptom baseline; refinement of the 3/10 rule for when to pull back from activity (the +3/10 rule, e.g. 5/10 → 8/10); capacity increases and adjustment period duration decreases before symptom severity decreases](https://youtu.be/pdhgSBaIc-E?t=42m55s) (start at 42:55 and watch until 59:15)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
@@ -75,7 +75,7 @@ One other advice: In some of the videos, the science of the brain is probably wr
 - [How to Deal With Extreme Boredom](https://youtu.be/w78ZUJEkl5I)
 - [Boredom During Recovery Can Be a Great Sign](https://youtu.be/kqJ8xUjKasM)
 - [Accepting boredom is a necessary step to recovery](https://youtu.be/gFssmz-cNqQ)
-- [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U)
+- [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U) (Visualization can be helpful for a lot of people during recovery, but just like meditation, breathing techniques, etc., I don't think it's necessary. The most important thing is to respond well to your symptoms.)
 - [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have)
 
 # Part 4: Recovery stories
