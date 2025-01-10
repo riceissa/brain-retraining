@@ -77,7 +77,7 @@ One other advice: In some of the videos, the science of the brain is probably wr
 - [Accepting boredom is a necessary step to recovery](https://youtu.be/gFssmz-cNqQ)
 - [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U). Visualization can be helpful for a lot of people during recovery, but just like meditation, breathing techniques, etc., I don't think it's necessary. The most important thing is to respond well to your symptoms.
 - [Acceptance and surrender meditation](https://youtu.be/elOOJQxb2Qg). Out of all of the meditations (including premium-only meditations) that are in the Gupta Program, this one was my favorite.
-- [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have)
+- [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have). If you have air hunger, also watch [this video](https://youtu.be/XliOGg8Tl98).
 
 # Part 4: Recovery stories
 
