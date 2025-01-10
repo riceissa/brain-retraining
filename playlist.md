@@ -10,6 +10,8 @@ This playlist contains the most important insights that _I_ needed to get on the
 
 In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
 
+Some of the videos have a branding on pain/only mention pain, but they mostly apply to non-pain symptoms as well.
+
 I recommend watching about 1–3 videos per day. Watch all the videos on this playlist and once you are done, rewatch them all again. I can't emphasize enough how important it is to just keep watching these videos over and over again. It takes time for your brain to really grok recovery. Eventually your brain _will_ get it.
 
 As the Gupta Program says, I highly recommend making a 6 month commitment to brain retraining, because it can take quite some time for you to understand what brain retraining is and for the benefits to show up. If you don't commit to it, you may end up dismissing it before you've truly understood it or before it has had time to work. If 6 months sounds like a lot of time and you would rather focus on other treatment approaches first, I would say go try the other treatments first, and only come back to brain retraining once you are ready to commit to it for 6 months. By the time I came to brain retraining, I was ill for 5 years, had tried a bunch of other unsuccessful treatments, my doctors had no other treatment options available for me, and I was too ill to go into a doctor's office or do telehealth visits anyway, so 6 months of sitting at home and watching videos and doing techniques did not seem like a big commitment to me.
