@@ -1,7 +1,7 @@
 ---
 title: 'How to do brain retraining/brain rewiring/mindbody approach for free: a curated playlist'
 author: Issa Rice
-date: 2025-01-04
+date: 2025-01-10
 ---
 
 The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from each presenter.
