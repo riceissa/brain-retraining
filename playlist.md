@@ -42,7 +42,7 @@ One other advice: In some of the videos, the science of the brain is probably wr
 
 ## Main practice: respond well to symptoms
 
-- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The RIGHT Way: calm, collected, clarity (not fear, panic, worry, freaking out)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
+- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The RIGHT Way: calm, collected, clarity, acceptance, engaging with life (not fear, panic, worry, freaking out, distraction, ignoring, pushing away)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The golden rule in recovery is your response to the symptoms; what does it mean to respond well to symptoms?](https://www.youtube.com/watch?v=dIHaLeWYmOI)
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
@@ -61,7 +61,8 @@ One other advice: In some of the videos, the science of the brain is probably wr
 - [Progress cycles; micro vs macro; look at your progress month to month, rather than day to day or week to week](https://youtu.be/ScbQEqIhNNU?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The Recovery equation: Recovery = Mindset (i.e. responding well to symptoms) + Structure (i.e. pushing yourself the right amount)](https://youtu.be/YtTvQthX0C4)
 - [Whether you get an adjustment period or crash depends on how you respond to the symptoms; you need to experience symptoms and go through adjustment periods in order to get better; progress cycles](https://youtu.be/I6HE8WtI2Z4?list=PLJT8-UVmfsmL_wtXcgq9z1iUtVoYVM-Rq)
-- [How to deal with symptoms and what to do during adjustment periods; the 3/10 rule for when to pull back on activity](https://youtu.be/V95bVeCjVuI)
+- [How to deal with symptoms and what to do during adjustment periods; the 3/10 rule for when to pull back from activity](https://youtu.be/V95bVeCjVuI)
+- [Stages of recovery; once you find your baseline by having the right mindset and calm down your system so you're not on adrenaline/panic all the time, your fatigue can _increase_, and that's part of the process; finding your true symptom baseline; refinement of the 3/10 rule for when to pull back from activity (the +3/10 rule, e.g. 5/10 → 8/10); capacity increases and adjustment period duration decreases before symptom severity decreases](https://youtu.be/pdhgSBaIc-E?t=42m55s) (start at 42:55 and watch until 59:15)
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
