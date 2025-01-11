@@ -70,7 +70,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
-- [HOW MUCH Knowledge is Needed For Recovery; recovery is surprisingly simple: respond well to symptoms, push the right amount and then pull back during adjustment periods, progress cycles (repeat over and over)](https://youtu.be/ZQjOv7nRG8c)
+- [How Much Knowledge is Needed For Recovery; recovery is surprisingly simple: respond well to symptoms, push the right amount and then pull back during adjustment periods, progress cycles (repeat over and over)](https://youtu.be/ZQjOv7nRG8c)
 
 ## Miscellaneous
 
