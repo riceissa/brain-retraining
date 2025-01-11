@@ -6,6 +6,8 @@ date: 2025-01-10
 
 # Introduction
 
+(This introduction is ironically way too long since in worst stages of my illness when I first started doing brain retraining, I would not have been able to read this much text. I plan to eventually make an audio version of this introduction, to minimize the amount of text one needs to read.)
+
 The biggest barrier that stopped me from trying brain retraining for so long is the cost of the programs. I don't want cost to be a barrier for other people, so I've made this playlist consisting entirely of freely available YouTube videos. You might think that freely available means lower quality, but actually, I think this playlist is _better_ than any single program, because different presenters have different strengths whereas I get to pick the best videos from each presenter. You don't need to join a program or pay huge sums of money to recover.
 
 This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended more as a jumping-off point into the world of brain retraining and other mind body approaches, rather than an exhaustive list that has all that you need.
