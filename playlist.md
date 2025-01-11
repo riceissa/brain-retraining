@@ -10,7 +10,7 @@ The biggest barrier that stopped me from trying brain retraining for so long is 
 
 This playlist contains the most important insights that _I_ needed to get on the path to recovery, but it's likely that what I needed is different from what other people need, so this playlist is intended more as a jumping-off point into the world of brain retraining and other mind body approaches, rather than an exhaustive list that has all that you need.
 
-In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video.
+In cases where the video titles seemed uninformative or clickbaity (e.g. stuff like "The #1 secret to recovery"), I've substituted my own title, but of course you can see the original title by clicking through to the video. I've also downcased obnoxious all-caps in titles.
 
 Some of the videos have a branding on pain/only mention pain, but they mostly apply to non-pain symptoms as well.
 
@@ -38,7 +38,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [How Chronic Conditions Start & Develop](https://youtu.be/C5tE218DIhs?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [The Vicious Cycle, How Chronic Conditions Perpetuate](https://youtu.be/w70iNu1ux2U?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [Gupta's figure 8 cycle](https://www.positivehealth.com/article/cfs-me-long-covid/me-chronic-fatigue-syndrome-causes-and-the-amygdala-retraining-recovery-programme) (article). This one is an article, rather than a video, because the video where Gupta explains this is only accessible to premium members.
-- [How To Recover From CFS/POTS/FIBROMYALGIA SYMPTOMS - The Science Behind My Recovery](https://youtu.be/yLHknsw28OY)
+- [How To Recover From CFS/POTS/Fibromyalgia Symptoms - The Science Behind My Recovery](https://youtu.be/yLHknsw28OY)
 - [What Started Symptoms May Be Very Different From What Keeps Them Going](https://youtu.be/jNUAFsKbO3c)
 - [Introduction to Dan Buglio's approach to chronic illness recovery](https://youtu.be/Y8zxgdd1byM)
 
@@ -46,7 +46,7 @@ One last note before you get started watching the videos. Most of the videos I l
 
 ## Main practice: respond well to symptoms
 
-- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The RIGHT Way: calm, collected, clarity, acceptance, engaging with life (not fear, panic, worry, freaking out, distraction, ignoring, pushing away)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
+- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The Right Way: calm, collected, clarity, acceptance, engaging with life (not fear, panic, worry, freaking out, distraction, ignoring, pushing away)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The golden rule in recovery is your response to the symptoms; what does it mean to respond well to symptoms?](https://www.youtube.com/watch?v=dIHaLeWYmOI)
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
