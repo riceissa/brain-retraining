@@ -34,7 +34,7 @@ in so far as the people on my playlist disagree, here's where I stand:
 - Miguel (and by lineage, Danny) is the only one that has the adjustment
   periods/progress cycles concept, and I think it's crucial. I plateaued for a
   month around October 2024 because I didn't have these concepts. I disagree
-  with Gupta's vides on dips as 'unfortunate but probable, and it's okay if
+  with Gupta's views on dips as 'unfortunate but probable, and it's okay if
   they happen' attitude. Dips (i.e., adjustment periods) are _on_ the way to
   recovery, not in the way, as Miguel likes to say.
 
