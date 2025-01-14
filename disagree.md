@@ -1,5 +1,5 @@
 ---
-title:
+title: Where I agree and disagree with the various brain retraining people and programs
 author: Issa Rice
 created: 2025-01-14
 date: 2025-01-14
