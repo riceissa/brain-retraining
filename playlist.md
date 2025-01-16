@@ -54,7 +54,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The Right Way: calm, collected, clarity, acceptance, engaging with life (not fear, panic, worry, freaking out, distraction, ignoring, pushing away)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The golden rule in recovery is your response to the symptoms; what does it mean to respond well to symptoms?](https://www.youtube.com/watch?v=dIHaLeWYmOI)
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
-- [The #1 Way to Convey Safety to Your Brain: your response](https://youtu.be/PNaCAKao3ws?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [The #1 Way to Convey Safety to Your Brain: your response; react vs respond (two arrows)](https://youtu.be/PNaCAKao3ws?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Safety Is Created Proactively, It Doesn't Just Happen (emotional, physical, and mental safety); secondary fear](https://youtu.be/Ez9Ez49M8Ig?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [How to Talk to Your Brain to End Your Pain (and other symptoms)](https://youtu.be/MSad45F0ueY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Consistent messages of safety; no need to overcomplicate recovery](https://youtu.be/kjGQeGNALgg?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
