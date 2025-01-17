@@ -14,7 +14,11 @@ in so far as the people on my playlist disagree, here's where I stand:
   he mostly focuses on pain (even though he says that what he says applies to
   other symptoms, I think this is less true for the theory than the practice).
   In particular, I think there really is something going on in the body; it's
-  not just all just in the mind (except for certain symptoms like pain).
+  not just all just in the mind (except for certain symptoms like pain), and
+  the symptoms aren't "just" false alarms. But "the symptoms aren't dangerous,
+  it's a false alarm" is easier to wrap your head around than "the symptoms
+  _are_ real and dangerous, but they're only there because you reacted poorly
+  to them the last time they showed up".
 
 - I disagree with Helmut on the necessity of suffering tons to get better. I
   agree with Miguel more that you can find your baseline level of symptoms (by
