@@ -19,7 +19,7 @@ in so far as the people on my playlist disagree, here's where I stand:
   what's going on). But "the symptoms aren't dangerous, it's a false alarm" is
   easier to wrap your head around than "the symptoms _are_ real and some of
   them are dangerous, but they're only there because you reacted poorly to them
-  the last time they showed up".
+  the last $n$ times they showed up".
 
 - I disagree with Helmut on the necessity of suffering tons to get better. I
   agree with Miguel more that you can find your baseline level of symptoms (by
