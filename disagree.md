@@ -16,10 +16,12 @@ in so far as the people on my playlist disagree, here's where I stand:
   In particular, I think there really is something going on in the body; it's
   not all just in the mind (except for certain symptoms like pain), and the
   symptoms aren't "just" false alarms (although I do think that is _part_ of
-  what's going on). But "the symptoms aren't dangerous, it's a false alarm" is
-  easier to wrap your head around than "the symptoms _are_ real and some of
-  them are dangerous, but they're only there because you reacted poorly to them
-  the last $n$ times they showed up".
+  what's going on; I've definitely had symptoms happen where the only plausible
+  explanation is that I was freaking out and making it happen). But "the
+  symptoms aren't dangerous, it's a false alarm" is easier to wrap your head
+  around than "the symptoms _are_ real and some of them are dangerous, but
+  they're only there because you reacted poorly to them the last $n$ times they
+  showed up".
 
 - I disagree with Helmut on the necessity of suffering tons to get better. I
   agree with Miguel more that you can find your baseline level of symptoms (by
