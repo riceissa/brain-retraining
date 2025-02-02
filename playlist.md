@@ -84,6 +84,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [What is your kryptonite?](https://www.youtube.com/watch?v=RlVgD9hgwPY&list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [How to Deal With Extreme Boredom](https://youtu.be/w78ZUJEkl5I)
 - [Boredom During Recovery Can Be a Great Sign](https://youtu.be/kqJ8xUjKasM)
+- [Boredom in Your Recovery](https://youtu.be/v4igBMYAEZI)
 - [Accepting boredom is a necessary step to recovery](https://youtu.be/gFssmz-cNqQ)
 - [CFS/ME/Fibromyalgia drug cures. Don't fall into this trap!](https://youtu.be/ffc-samZP1Q)
 - [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U). Visualization can be helpful for a lot of people during recovery, but just like meditation, breathing techniques, etc., I don't think it's necessary. The most important thing is to respond well to your symptoms.
