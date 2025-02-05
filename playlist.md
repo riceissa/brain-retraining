@@ -89,7 +89,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [CFS/ME/Fibromyalgia drug cures. Don't fall into this trap!](https://youtu.be/ffc-samZP1Q)
 - [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U). Visualization can be helpful for a lot of people during recovery, but just like meditation, breathing techniques, etc., I don't think it's necessary. The most important thing is to respond well to your symptoms.
 - [Techniques for dealing with lack of motivation, malaise, depression: realize that thoughts are only a small part of your experience; zone in on sensations and emotions to get past the layer of interpretation](https://youtu.be/i7kh8pNRWOo) ([Q&A](https://youtu.be/ECwHZlvvVH4))
-- [Acceptance and surrender meditation](https://youtu.be/elOOJQxb2Qg). Out of all of the meditations (including premium-only meditations) that are in the Gupta Program, this one was my favorite.
+- [Acceptance and surrender meditation](https://youtu.be/elOOJQxb2Qg). Out of all of the meditations (including premium-only meditations) that are in the Gupta Program, this one was my favorite. I like to do this one when my symptoms feel overwhelming.
 - [Symptom-specific playlist from Miguel Bautista](https://youtube.com/playlist?list=PLJT8-UVmfsmKHgGkCQPKkmHgZL11LqvJa) (just watch the videos for the symptoms you have). If you have air hunger, also watch [this video](https://youtu.be/XliOGg8Tl98).
 
 # Part 4: Recovery stories
