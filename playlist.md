@@ -60,6 +60,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [Consistent messages of safety; no need to overcomplicate recovery](https://youtu.be/kjGQeGNALgg?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [Recovery From Fear](https://youtu.be/VSmTe8zPXh0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [What you resist persists; engaging vs ignoring/distracting](https://youtu.be/ZJy76FDM6PU)
+- [Don't Distract - Engage in Living Life](https://youtu.be/_o378gnUfc0?list=PLRJmnkn2kTTJAg2JZyRmLK19YiWYTKTu9)
 - [Allow then engage. Don't forget to engage after you allow!](https://youtu.be/vyf2hMaEbrA)
 - [Allow and engage session #1](https://youtu.be/Yt2pA1zG9Rc)
 - ["It's just the nervous system"](https://youtu.be/uKD4w4Vg9Uo)
