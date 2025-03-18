@@ -88,6 +88,8 @@ One last note before you get started watching the videos. Most of the videos I l
 - [Boredom in Your Recovery](https://youtu.be/v4igBMYAEZI)
 - [Accepting boredom is a necessary step to recovery](https://youtu.be/gFssmz-cNqQ)
 - [Cup analogy for boredom](https://youtu.be/iCOxreLKSc4)
+- [How to recovery faster](https://youtu.be/ng8m8nNGho4)
+- [Try Less to Get Well Faster](https://youtu.be/BtNHgXDP3So)
 - [CFS/ME/Fibromyalgia drug cures. Don't fall into this trap!](https://youtu.be/ffc-samZP1Q)
 - [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U). Visualization can be helpful for a lot of people during recovery, but just like meditation, breathing techniques, etc., I don't think it's necessary. The most important thing is to respond well to your symptoms.
 - [Techniques for dealing with lack of motivation, malaise, depression: realize that thoughts are only a small part of your experience; zone in on sensations and emotions to get past the layer of interpretation](https://youtu.be/i7kh8pNRWOo) ([Q&A](https://youtu.be/ECwHZlvvVH4))
