@@ -59,6 +59,11 @@ in so far as the people on my playlist disagree, here's where I stand:
   something I enjoy (which can admittedly be hard to find). So APs are a useful
   concept but also they don't exist (what?)!
 
+  I think Miguel's followers "reify" APs too much. It turns into this big thing
+  in their mind (and my mind; I still need to work on this). Of course, you are
+  taught to be like "well this is an opportunity for growth, I can overcome the
+  AP". But that's still giving it too much power! THE AP IS NOT REAL!
+
 - I disagree with Gupta and DNRS on the 7 steps/super involved "rounds" that
   you have to do in these programs. I think the simple Dan/Miguel/Helmut
   approach works much better for me. But I can see how this can be an
