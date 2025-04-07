@@ -45,6 +45,20 @@ in so far as the people on my playlist disagree, here's where I stand:
   they happen' attitude. Dips (i.e., adjustment periods) are _on_ the way to
   recovery, not in the way, as Miguel likes to say.
 
+- However, unlike Miguel's take on APs, I think APs are "fake", in the sense
+  that your brain has just temporarily really strongly convinced itself you're
+  suddenly in more danger (but in reality you actually aren't). I've had at
+  least three instances spanning across months of time now where I just spent
+  days going around telling people "I'm in an AP" (or something similar). It
+  really _felt_ like my symptoms were flaring for understandable reasons (I
+  over did it, I was exposed to X stimulus, etc.). I kept telling myself this
+  kind of story. But in my experience resting doesn't actually help -- it just
+  makes me more conscious of the symptoms and I just ruminate and get worse and
+  worse. The right mental motion instead seems to be (at least for me), just
+  saying "The AP is not real, the AP is BULLSHIT". And then just doing
+  something I enjoy (which can admittedly be hard to find). So APs are a useful
+  concept but also they don't exist (what?)!
+
 - I disagree with Gupta and DNRS on the 7 steps/super involved "rounds" that
   you have to do in these programs. I think the simple Dan/Miguel/Helmut
   approach works much better for me. But I can see how this can be an
