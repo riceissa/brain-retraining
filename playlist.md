@@ -77,6 +77,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [Increase the duration of activity before increasing the intensity of activity](https://www.youtube.com/watch?v=b_zMAWnUabk)
 - [The mindshift](https://youtu.be/WE2RWv2DAqY)
 - [6 Steps to Resume Activity](https://youtu.be/mRowJmW4uk0?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
+- [I Tried to Live My Life and it Backfired](https://youtu.be/egJi9-F2JFE)
 - [How Much Knowledge is Needed For Recovery; recovery is surprisingly simple: respond well to symptoms, push the right amount and then pull back during adjustment periods, progress cycles (repeat over and over)](https://youtu.be/ZQjOv7nRG8c)
 
 ## Miscellaneous
@@ -91,6 +92,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [How to recovery faster](https://youtu.be/ng8m8nNGho4)
 - [Try Less to Get Well Faster](https://youtu.be/BtNHgXDP3So)
 - [CFS/ME/Fibromyalgia drug cures. Don't fall into this trap!](https://youtu.be/ffc-samZP1Q)
+- [How exactly did I end my Back Pain and Sciatica?](https://youtu.be/7UskYY-YFq4) -- long Dan Buglio video with several good points. Don't stay stuck in story mode. Adam Heller's technique for how to feel your emotions.
 - [Example of DNRS-style visualization: Full Hour of DNRS Brain Rewiring Routine for Healing](https://youtu.be/M33QYyneh8U). Visualization can be helpful for a lot of people during recovery, but just like meditation, breathing techniques, etc., I don't think it's necessary. The most important thing is to respond well to your symptoms.
 - [Techniques for dealing with lack of motivation, malaise, depression: realize that thoughts are only a small part of your experience; zone in on sensations and emotions to get past the layer of interpretation](https://youtu.be/i7kh8pNRWOo) ([Q&A](https://youtu.be/ECwHZlvvVH4))
 - [Acceptance and surrender meditation](https://youtu.be/elOOJQxb2Qg). Out of all of the meditations (including premium-only meditations) that are in the Gupta Program, this one was my favorite. I like to do this one when my symptoms feel overwhelming.
