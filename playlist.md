@@ -34,7 +34,7 @@ One last note before you get started watching the videos. Most of the videos I l
 - [How the \[Gupta\] Program Works](https://youtu.be/ynXi63OsCuk?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [Attitudes For Success](https://youtu.be/TTLRuVSzQ7M?list=PLkesvla8YglP_lnvwB_ydzIsY0WscnMUg)
 - [How Long Does It Take To Recover? Commit for 6 months no matter what](https://youtu.be/vhdmBwde0y0)
-- [You're Not Some Special Kind of Broken](https://youtu.be/ICnw4Kq7dBA)
+- You're Not Some Special Kind of Broken (pick one): [soft version](https://youtu.be/ICnw4Kq7dBA) / [hard version](https://www.youtube.com/watch?v=ZeHK24w50NE)
 
 # Part 2: Theory: Understanding what is going on in these chronic conditions
 
