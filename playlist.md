@@ -104,3 +104,4 @@ One last note before you get started watching the videos. Most of the videos I l
 - [Sam from the UK](https://youtu.be/X91Acb0mqo4)
 - [Danny Tiscareno](https://youtu.be/vNqeeiqRSZw)
 - [Matt Butler](https://youtu.be/voONVxSx84s)
+- [Michele](https://www.youtube.com/watch?v=FPZwW86KbIM)
