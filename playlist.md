@@ -2,7 +2,7 @@
 title: 'How to do brain retraining/brain rewiring/mindbody approach for free: a curated playlist'
 author: Issa Rice
 created: 2025-01-03
-date: 2025-04-15
+date: 2025-11-17
 ---
 
 # Introduction
