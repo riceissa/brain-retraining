@@ -51,7 +51,7 @@ One last note before you get started watching the videos. Most of the videos I l
 
 ## Main practice: respond well to symptoms
 
-- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The Right Way: calm, collected, clarity, acceptance, engaging with life (not fear, panic, worry, freaking out, distraction, ignoring, pushing away)](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
+- [Your success in recovery is determined by how well you respond to the symptoms. Dealing With Symptoms The Right Way: calm, collected, clarity (about the causes), acceptance (of the symptoms and where you currently are in the recovery journey), allowing (the symptoms to be there), not resisting the symptoms, engaging with life; not fear, panic, worry, freaking out, resisting, distraction, ignoring, pushing away](https://youtu.be/k_mljnKn8O4?list=PLJT8-UVmfsmLXOsYH_kqLHyeCq4Arsyv4)
 - [The golden rule in recovery is your response to the symptoms; what does it mean to respond well to symptoms?](https://www.youtube.com/watch?v=dIHaLeWYmOI)
 - [Consistent Messages of Safety - 24 Examples](https://youtu.be/5SsKnAgAvnY?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
 - [The #1 Way to Convey Safety to Your Brain: your response; react vs respond (two arrows)](https://youtu.be/PNaCAKao3ws?list=PLRJmnkn2kTTIl4frNvmpenr49xcTmVl2H)
